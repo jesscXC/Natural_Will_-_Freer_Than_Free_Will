@@ -1,9 +1,11 @@
 
 Natural Will: Freer Than Free Will
+<br>
 devved by Jess Cummins
 
 
 Chapter 1
+<br>
 Accept Natural Will to Get Freedom from Self-Punishment
 
 What is natural will? It is the understanding that choices are made due to the entirety of nature's influences. It is the better counterpart to free will.

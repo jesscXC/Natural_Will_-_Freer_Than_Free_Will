@@ -1,5 +1,5 @@
 
-Natural Will: Freer Than Free Will
+# Natural Will: Freer Than Free Will
 <br>
 devved by Jess Cummins
 <br>
@@ -7,7 +7,7 @@ devved by Jess Cummins
 
 <hr>
 
-Accept Natural Will to Get Freedom from Self-Punishment
+## Accept Natural Will to Get Freedom from Self-Punishment
 <br>
 ty13.6.5s
 
@@ -43,9 +43,10 @@ Accept that your mind is a natural process and you allow yourself freedom from s
 
 <hr>
 
-Unpredictable Free Will
+## Unpredictable Free Will
 <br>
 ty13.3.8s
+
 "Because of the chaotic quantum unpredictability of nature, our will is free from prediction."
 
 Consider it: The universe evolves in an unpredictable manner. We create models in science to predict, but these are always approximate. With quantum mechanics we realize events are based on probabilities rather than certainties. Particles have probabilities of where they will be found. It cannot be known where a particle is until we measure it, which affects where it is going.
@@ -58,7 +59,7 @@ To some extent we have "free want". We feel a freedom in choosing what we want, 
 
 <hr>
 
-A Soul's Death
+## A Soul's Death
 <br>
 ty13.4.18s
 
@@ -66,7 +67,7 @@ If your mind is uploaded to a computer and your body dies, do you still exist?
 
 <hr>
 
-Accept Control is an Illusion
+## Accept Control is an Illusion
 <br>
 ty13.6.1s
 
@@ -95,6 +96,26 @@ Why not accept that free will is a trick? Why not notice our senses are moving a
 Does this not actually give us _more_ freedom from suffering and worry?
 
 If we realize our minds are nature's, does this not give us more ability to be comfortable in experiencing the Now?
+
+<hr>
+
+## The Fictitious Story of Identity
+<br>
+ty13.6.2s
+
+Your mind is an interpreter of stories -- information patterns. The mind thinks in stories.
+
+The sense of self, of identity, is a fictional story. It sometimes helps you cooperate with others.
+
+When you are tricked into believing that your identity exists in reality, you allow suffering. Inner peace is challenged when you believe you must be a certain way.
+
+The truth is that nature _is_ a certain way. As a force of nature, you should accept what is happening.
+
+You are the doing, not the doer nor the done. Your body is a wonderful mechanism that nature has put together.
+
+The information patterns of your mind are inscribed by nature, there's no need to try to control them.
+
+When you recognize you _are_ nature, your awareness can watch your body behave according to the scripts it follows. Yet you aren't tied up in them, you are free to watch.
 
 
 

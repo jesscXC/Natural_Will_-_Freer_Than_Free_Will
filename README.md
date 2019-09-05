@@ -127,5 +127,128 @@ The information patterns of your mind are inscribed by nature, there's no need t
 
 When you recognize you _are_ nature, your awareness can watch your body behave according to the scripts it follows. Yet you aren't tied up in them, you are free to watch.
 
+<hr>
+
+## Throw Off Your Yoke of Identity
+<br>
+ty13.6.3s
+<br>
+(uuid 3226101f-bac1-4e36-ac2e-ba27be895975)
+
+O great twisty math of the universe, please reveal yourself to me. My mind cannot fully absorb the subtleness of the infinite mysteries of reality, yet please aid my quest as I try to grow and better myself.
+
+Here I sit, in a room of human creation, and yet I must ask, does not the rest of the universe deserve some credit for our deeds? Don't galaxies light-years away that are influencing us in unpredictable ways show us our hubris in declaring our inventions as "human"?
+
+Aren't we each awarenesses in a process of bending back, yet fundamentally beholden to nature?
+
+If so, how can free will be at all sensible or appealing? Isn't this sense of control merely an illusion, built up because of evolutionary advantages? What evolutionary reasons could these be?
+
+Perhaps this feeling of volition is really a meme that spread, like the idea of a flat Earth. Like what happened with the idea of the Earth at the center of the Universe, hopefully we will develop better models and see the benefit in not being tricked by the illusion of control.
+
+This benefit comes by easing the pain of suffering which is caused by resisting what <em>Is</em> in favor of what one thinks <em>Should Be</em>.
+
+It's silly, isn't it? We blind ourselves to the simple truth of our minds being imagined ideas, which causes suffering when who we think we should be doesn't match what is.
+
+This trick of a persistent self may help us cooperate with others in a consistent way, but when we fail to stay in our imagined bubble of acceptable living we beat ourselves up, as if the process of awareness <em>requires</em> an identity.
+
+You don't need an identity any more than you need a belief in invisible pink unicorns. The universe happens -- and you're in it.
+
+The ego, the sense of an identity, is fundamentally an imagined idea. If you want to turn your attention on the experiences of <em>living</em> rather than the illusions of <em>thinking</em>, you can.
+
+Your body is a force of nature in the universe, and your sensation of mind and awareness proceeds from the natural processes of your neural wetware.
+
+If nature wanted you to be different, you would be.
+
+If the math running the universe rolled out for you to be different, you would be.
+
+So should you feel alone? Should you feel broken? What about bliss or comfort?
+
+It turns out that these emotions are created by your brain. This is a natural brain, not exempt from nature's mathematical laws.
+
+The processes of thinking and emoting and worrying are created by nature, you don't need to try to control it.
+
+This is why the ancients, in texts like the Bhagavad Gita and the Tao Te Ching, constantly speak of developing motivelessness and detachment to desires.
+
+It's because these desires are imagined ideas! Wrapping yourself in the comfort of the fruits of purposive actions only serves to strengthen the trick that you are in control!
+
+Instead, shake off that yoke of identity which causes suffering. You are neither the watcher nor the watched, you are nature watching itself.
+
+Your body is an observational tool. It is an instrument that was built up by the processes of reality.
+
+Let yourself break from the idea that you need to <em>do</em> something. When the time comes, it will either happen or not. There is never a good time to worry.
+
+While life is not like a movie, where it all works out in the end for you, it does proceed by the impartial rules of nature. You don't need to try to control that. To do so would be like trying to rewrite a movie that's already been filmed.
+
+Belief in free will is optional. If the circumstances work out where you realize identity is just a belief, not a fact, you can learn to live without the pain of imagined suffering.
+
+<hr>
+
+## Suffering Does Not Come From Attachment to Desires
+<br>
+ty13.6.4s
+<br>
+(uuid 73039173-81a5-4368-ac7d-4d6f04b5224e)
+
+I ponder now if the ancients had it wrong when declaring motivelessness and renouncement of desires as the best path to enlightenment and peace.
+
+That is, rather than expecting things to go our way, we should accept that attachment to desires brings pain to the soul.
+
+Yet is this the truth of the matter?
+
+My question is not whether motivelessness is superior to feeling the urge to keep up with the Jones', because I do believe detachment from the fruits of actions does help bring peace.
+
+Yet is this the best way?
+
+The real problem that I see with the texts of the Bhagavad Gita and the Tao Te Ching and Zen Buddhism is that they seem to posit that one actually has control over one's life. Frankly, that's just not so.
+
+The universe creates and the universe is. The epiphenomenon of the mind is nature playing itself out.
+
+The universe constructs the brain which allows the mind, and the mind is inseparable from the universe.
+
+What is an illusion? It is a fiction that deceives us into believing it is real.
+
+Now, I am all in favor of believing whatever makes you happiest. No axiom, not matter how obvious, is provably true. At the core, you can only assume, never know. This means that you should choose what will aid you in your quest for inner peace.
+
+Yet let us think deeper on this issue: If inner peace comes from detachment from desires and living in the moment, how do we do that? How do we experience the Now instead of living in imagined stories of good versus evil?
+
+It seems to me the illusion is only broken (or most successfully broken) when we accept that nature is going the way it will go, and we get to experience it, rather than force it into a predefined box.
+
+So what does this tell us?
+
+Well, it informs the awareness that is digesting these words that freedom from suffering comes from acceptance of natural will.
+
+The libertarian notion that we control our destinies is hurtful fantasy. Do we imagine molecules control <em>their</em> destinies? Do we blame them if they "fail" to?
+
+If we spare ourselves from the belief in control we actually can <em>watch</em> our bodies and minds exist in-place, rather than being unconscious to the fact of there being no free will.
+
+When we accept our bodies and minds and environments are happening naturally, we allow ourselves inner peace.
+
+By realizing it's not necessity to renounce the fruits of action, we can grow to realize that our minds are happening because of natural processes.
+
+Our brains run on the math of the universe. Buying into notions of what should or shouldn't happen can cause us suffering.
+
+Zen and the Tao Te Ching and the Bhagavad Gita seem to presume that free will is possible in this universe.
+
+The mind is not separate from the brain: it is the process of the brain.
+
+This is what nondualism means: the brain and the mind are one, and so the universe is one.
+
+Some might say that evil is objectively wrong, that theft and wars and violence are always and forever damnable offenses.
+
+Yet how true can that really be if our actions are proceeding naturally?
+
+Is a computer program responsible for its actions? No, it is an output of a natural environment.
+
+This is not to say that imprisoning destructive programs or violent people is wrong, just that their behavior and our imprisoning are both completely natural. The behavior is out of the hands of any one person, or even the hands of the galaxy.
+
+The universe is unpredictable, and in that sense we go down many different paths. We, even as self-aware animals, have no idea which path we go down.
+
+So what's the point of all this chatter?
+
+The point is that suffering comes from belief in free will, not from attachment to desires.
+
+We are totally natural experiences.
+
+
 
 

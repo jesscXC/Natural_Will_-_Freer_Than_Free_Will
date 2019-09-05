@@ -10,6 +10,8 @@ devved by Jess Cummins
 ## Accept Natural Will to Get Freedom from Self-Punishment
 <br>
 ty13.6.5s
+<br>
+(uuid 910ecec2-59d7-43c4-8aab-e30a4b7c5c30)
 
 What is natural will? It is the understanding that choices are made due to the entirety of nature's influences. It is the better counterpart to free will.
 
@@ -46,6 +48,8 @@ Accept that your mind is a natural process and you allow yourself freedom from s
 ## Unpredictable Free Will
 <br>
 ty13.3.8s
+<br>
+(uuid 4cf98d68-1b12-4739-8990-13db4fcec77d)
 
 "Because of the chaotic quantum unpredictability of nature, our will is free from prediction."
 
@@ -62,6 +66,8 @@ To some extent we have "free want". We feel a freedom in choosing what we want, 
 ## A Soul's Death
 <br>
 ty13.4.18s
+<br>
+(uuid a3666746-2470-4ec4-983d-e31a28422f97)
 
 If your mind is uploaded to a computer and your body dies, do you still exist?
 
@@ -70,6 +76,8 @@ If your mind is uploaded to a computer and your body dies, do you still exist?
 ## Accept Control is an Illusion
 <br>
 ty13.6.1s
+<br>
+(uuid 41ccca4f-6162-4e9f-a16f-f7fbcfc0a723)
 
 O great Mystery, wise mind that permeates this universe, please grant me humbleness before you so that I may climb a little higher on the vine I am clutching.
 
@@ -102,6 +110,8 @@ If we realize our minds are nature's, does this not give us more ability to be c
 ## The Fictitious Story of Identity
 <br>
 ty13.6.2s
+<br>
+(uuid 47009de3-133a-4141-b54d-00bb166ffff6)
 
 Your mind is an interpreter of stories -- information patterns. The mind thinks in stories.
 

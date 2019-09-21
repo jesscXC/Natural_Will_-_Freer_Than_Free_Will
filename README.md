@@ -249,4 +249,42 @@ The point is that suffering comes from belief in free will, not from attachment 
 
 We are totally natural experiences.
 
+<hr>
+
+## Natural Will is the Alternative to Free Will
+<br>
+(uuid 5b042974-9eeb-48a2-a5c9-ddf969206e10)
+<br>
+ty13.6.14s
+I ask today of the charges against natural will and whether they are valid.
+
+Specifically, are we made worse by not believing free will exists? Does it constrain our actions? Does it make us lazy?
+
+Can the theory of natural will capture the essence of life and not drain it of meaning?
+
+I propose it can.
+
+If will is the faculty of choice, then what is natural will? It is choice made due to the entirety of nature's influences, not a separate ego.
+
+Understanding natural will helps us see that the feeling of free will is detrimental.
+
+Rather than setting us free, the idea of free will imprisons us in suffering.
+
+Belief in natural will actually allows for a more fluid, less self-conscious way of life.
+
+Instead of judging yourself harshly when your goal is not met, you realize that identity is an illusion and you couldn't have acted any other way.
+
+You can't force the universe to conform with your choices. You only have an illusion of choice.
+
+With the understanding that will is natural, you can let go of preconceived notions of who you're supposed to be and what you're supposed to do.
+
+Is this a bad thing? Does it make you a less productive person?
+
+Well, free will doesn't make sense as a concept, so it's really not up to you to choose to be productive or not. It's the universe's choice.
+
+You are an awareness watching life unfold. That is a more elegant idea than being trapped in your head.
+
+So let yourself be truly free: Choose natural will.
+
+
 

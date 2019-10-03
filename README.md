@@ -286,5 +286,7 @@ You are an awareness watching life unfold. That is a more elegant idea than bein
 
 So let yourself be truly free: Choose natural will.
 
+...
 
+(more to be published)
 

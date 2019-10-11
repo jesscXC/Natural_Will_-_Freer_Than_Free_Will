@@ -9,7 +9,7 @@ devved by Jess Cummins
 
 ## Accept Natural Will to Get Freedom from Self-Punishment
 <br>
-(uuid_910ecec2-59d7-43c4-8aab-e30a4b7c5c30)
+(uuid-910ecec2-59d7-43c4-8aab-e30a4b7c5c30)
 <br>
 ty13.6.5s
 
@@ -47,7 +47,7 @@ Accept that your mind is a natural process and you allow yourself freedom from s
 
 ## Unpredictable Free Will
 <br>
-(uuid_4cf98d68-1b12-4739-8990-13db4fcec77d)
+(uuid-4cf98d68-1b12-4739-8990-13db4fcec77d)
 <br>
 ty13.3.8s
 
@@ -65,7 +65,7 @@ To some extent we have "free want". We feel a freedom in choosing what we want, 
 
 ## A Soul's Death
 <br>
-(uuid_a3666746-2470-4ec4-983d-e31a28422f97)
+(uuid-a3666746-2470-4ec4-983d-e31a28422f97)
 <br>
 ty13.4.18s
 
@@ -75,7 +75,7 @@ If your mind is uploaded to a computer and your body dies, do you still exist?
 
 ## Accept Control is an Illusion
 <br>
-(uuid_41ccca4f-6162-4e9f-a16f-f7fbcfc0a723)
+(uuid-41ccca4f-6162-4e9f-a16f-f7fbcfc0a723)
 <br>
 ty13.6.1s
 
@@ -109,7 +109,7 @@ If we realize our minds are nature's, does this not give us more ability to be c
 
 ## The Fictitious Story of Identity
 <br>
-(uuid_47009de3-133a-4141-b54d-00bb166ffff6)
+(uuid-47009de3-133a-4141-b54d-00bb166ffff6)
 <br>
 ty13.6.2s
 
@@ -131,7 +131,7 @@ When you recognize you _are_ nature, your awareness can watch your body behave a
 
 ## Throw Off Your Yoke of Identity
 <br>
-(uuid_3226101f-bac1-4e36-ac2e-ba27be895975)
+(uuid-3226101f-bac1-4e36-ac2e-ba27be895975)
 <br>
 ty13.6.3s
 
@@ -185,7 +185,7 @@ Belief in free will is optional. If the circumstances work out where you realize
 
 ## Suffering Does Not Come From Attachment to Desires
 <br>
-(uuid_73039173-81a5-4368-ac7d-4d6f04b5224e)
+(uuid-73039173-81a5-4368-ac7d-4d6f04b5224e)
 <br>
 ty13.6.4s
 
@@ -253,7 +253,7 @@ We are totally natural experiences.
 
 ## Natural Will is the Alternative to Free Will
 <br>
-(uuid_5b042974-9eeb-48a2-a5c9-ddf969206e10)
+(uuid-5b042974-9eeb-48a2-a5c9-ddf969206e10)
 <br>
 ty13.6.14s
 I ask today of the charges against natural will and whether they are valid.

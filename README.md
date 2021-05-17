@@ -1,9 +1,9 @@
 
 # Natural Will: Freer Than Free Will
-<br>
-devved by Jess Cummins
-<br>
+
 [NoLiesPlease.com](http://noliesplease.com)
+<br>
+devved by Jess Cummins (@jesscxc)
 
 <hr>
 
@@ -289,4 +289,3 @@ So let yourself be truly free: Choose natural will.
 ...
 
 (more to be published)
-
